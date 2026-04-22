@@ -4,6 +4,7 @@
   <br>
    <br>
    
-hello! if you see this github on a vtuber skin, that means it's someone **I don't really watch** and I won't be familiar with! It will either be a matching skin, or someone I'm in the process of getting to know. do not expect me to know much about them or to get any references. <br>
+hello! if you see this github on a vtuber skin, that means it's **someone I'm in the process of getting to know** or someone **I don't really watch** and I won't be familiar with! half of the time it'll be a matching skin, though I make sure my skin name usually gives it away. <br>
+do not expect me to know much about them or to get any references. <br>
 [carrd](https://ddropscythe.carrd.co/) [main acc](https://github.com/dropscythe)
 <br>
